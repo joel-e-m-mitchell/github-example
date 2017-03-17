@@ -2,7 +2,12 @@ Games Climbers Play
 ======
 Lito Tejada-Flores
 ------
-## 1
+
+> Reality is the apparent absence of contradiction
+*Louis Arragon, Le Paysan de Paris*
+
+## I
+
 What I should like to propose in this article is not a new answer to the basically 
 unanswerable question, 'what is climbing?', but rather a new way of talking and 
 thinking about it. Climbing is not a homogeneous sport but rather a collection of 
