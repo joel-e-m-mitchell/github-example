@@ -4,6 +4,7 @@ Lito Tejada-Flores
 ------
 
 > Reality is the apparent absence of contradiction
+
 *Louis Arragon, Le Paysan de Paris*
 
 ## I
